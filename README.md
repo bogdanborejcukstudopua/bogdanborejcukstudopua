@@ -1,0 +1,6 @@
+- 👋 Hi, I'm @bogdanborejcukstudopua
+- 👀 I'm interested in...
+- 🌱 Now I am studying in the first year of 122 majors at ONPU
+- 📫 How to reach me my telegram @bogdankirieshki1312 and my mail bogdanborejcuk@stud.op.edu.ua
+- 😄 Pronouns: MEGA\TRON
+- ⚡ Interesting fact: like videos with monkeys
